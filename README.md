@@ -13,7 +13,7 @@ Oh also, please don't be like, weird about how I acted in source. I am not like 
 I am mentally disabled and it makes me struggle with a **lot** of things, though most noticeably, speaking to people. I struggle a **lot** with talking to people besides my partner or best friend. I may come off as stuck-up or awkward, so #Apologies in advance. I can't really notice social cues, so when speaking to me, you may need to be a bit straight-forward. I am a Sylph of Space and my e%tended zodiac sign is Lega! I really enjoy looking  into things like that as it tells me more about myself.
 
 **Please interact:**
-Sourcemates, My Little Pony fans, People who like roleplaying, If you like horses, I also like Overwatch and Life is Strange but not as much as Homestuck
+Sourcemates, [My Little Pony fans](https://www.youtube.com/watch?v=hOgamnKX2-o&list=RDhOgamnKX2-o&start_radio=1), People who like roleplaying, If you like horses, I also like Overwatch and Life is Strange but not as much as Homestuck
 
 **PonyTown:**
 I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. 8)
