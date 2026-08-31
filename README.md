@@ -1,4 +1,4 @@
-` ` So put (put, put, put) put your hand in my back pocket. As if it were your own back pocket! ` ` 
+" So put (put, put, put) put your hand in my back pocket. As if it were your own back pocket! "
 
 Hello and welcome to my page! This is my first time making one of these, so bear with me. Haha.
 
@@ -17,3 +17,5 @@ Sourcemates, My Little Pony fans, People who like roleplaying, If you like horse
 
 **PonyTown:**
 I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. 8)
+
+" Everypony tells me that it's old and fake mythology.. It's a mystery, anthropology! "
