@@ -1,6 +1,6 @@
 ***" So put (put, put, put) put your hand in my back pocket. As if it were your own back pocket! "***
 
-![Profile Views](https://komarev.com/ghpvc/?username=your-github-username)
+![Profile Views](https://komarev.com/ghpvc/?username=pitifulThoroughbred)
 
 Hello and welcome to my page! This is my first time making one of these, so bear with me. Haha.
 
