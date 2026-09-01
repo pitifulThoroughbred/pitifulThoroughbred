@@ -16,6 +16,6 @@ I am mentally disabled and it makes me struggle with a **lot** of things, though
 Sourcemates, [My Little Pony fans](https://www.youtube.com/watch?v=hOgamnKX2-o), People who like roleplaying, If you like horses
 
 **PonyTown:**
-I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. 8)
+I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. **Please** do not copy any of my skins.
 
 ***" Everypony tells me that it's old and fake mythology.. It's a mystery, anthropology! "***
