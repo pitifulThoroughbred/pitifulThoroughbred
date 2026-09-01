@@ -3,7 +3,7 @@
 Hello and welcome to my page! This is my first time making one of these, so bear with me. Haha.
 
 **Do Not Interact:**
-TCC, Darkshippers, Anti-recovery, under 14 (I just prefer having friends 14 and up despite being 16, so YES. I **do** sound like a hypocrite, but I do not care.), over 19, SHEDtwt, Nsfw, Zoophiles. Uruhhrhg, I'll add more some other time, that's all I can think of right now. I'm sorry if I've interacted with you and you're on my DNI. I don't really read everypony's links.
+TCC, Darkshippers, Anti-recovery, under 14 (I just prefer having friends 14 and up despite being 16, so YES. I **do** sound like a hypocrite, but I do not care.), over 19, SHEDtwt, Nsfw, Zoophiles, Endogenics + Willogenics. Uruhhrhg, I'll add more some other time, that's all I can think of right now. I'm sorry if I've accidentally interacted with you and you're on my DNI. I don't really read everypony's links.
 
 Oh also, please don't be like, weird about how I acted in source. I am not like that about horses. I just think they are very cool and I would like to be one. I do not like them like **that**.
 
