@@ -19,5 +19,7 @@ Sourcemates, [My Little Pony fans](https://www.youtube.com/watch?v=hOgamnKX2-o),
 
 **PonyTown:**
 I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. **Please** do not copy any of my skins.
+**Ponies you may see me as:**
+![](https://gifyu.com/image/bnedn#150x150)
 
 ***" I am the slave.. and you are the master! Here is a stick. Now beat me. BEAT ME FASTER! "***
