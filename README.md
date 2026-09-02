@@ -12,14 +12,16 @@ Oh also, please don't be like, weird about how I acted in source. I am not like 
 ![](https://s13.gifyu.com/images/bnBcb.gif) ![](https://s13.gifyu.com/images/bnBcM.gif) ![](https://s13.gifyu.com/images/bnBcL.gif)
 
 **About Me:**
-I am mentally disabled and it makes me struggle with a **lot** of things, though most noticeably, speaking to people. I struggle a **lot** with talking to people besides my partner or best friend. I may come off as stuck-up or awkward, so #Apologies in advance. I can't really notice social cues, so when speaking to me, you may need to be a bit straight-forward. I am a Sylph of Space and my e%tended zodiac sign is Lega! I really enjoy looking  into things like that as it tells me more about myself. I am 6teen years old. 8)
+I am mentally disabled and it makes me struggle with a **lot** of things, though most noticeably, speaking to people. I struggle a **lot** with talking to people besides my partner or best friend. I may come off as stuck-up or awkward, so #Apologies in advance. I can't really notice social cues, so when speaking to me, you may need to be a bit straight-forward. I am a Sylph of Space and my e%tended zodiac sign is Lega! I really enjoy looking  into things like that as it tells me more about myself. I am 6teen years old.
 
 **Please interact:**
 Sourcemates, [My Little Pony fans](https://www.youtube.com/watch?v=hOgamnKX2-o), People who like roleplaying, If you like horses
 
 **PonyTown:**
 I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. **Please** do not copy any of my skins.
-**Ponies you may see me as:**
-![](https://gifyu.com/image/bnedn#150x150)
+
+**Skins you may see us as:**
+
+![](https://s13.gifyu.com/images/bnedn.gif#50x50) ![](https://s13.gifyu.com/images/bnedd.gif#50x50) ![](https://s13.gifyu.com/images/bnedl.gif#50x50) ![](https://s13.gifyu.com/images/bnedv.gif#50x50) ![](https://s13.gifyu.com/images/bnedm.gif#50x50) ![](https://s13.gifyu.com/images/bnedq.gif#50x50) ![](https://s13.gifyu.com/images/bnedI.gif#50x50) ![](https://s13.gifyu.com/images/bned7.gif#50x50)
 
 ***" I am the slave.. and you are the master! Here is a stick. Now beat me. BEAT ME FASTER! "***
