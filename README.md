@@ -7,6 +7,8 @@ TCC, Darkshippers (Especially **ANY HOMESTUCK INCESTUOUS SHIP**. All of you who 
 
 Oh also, please don't be like, weird about how I acted in source. I am not like that about horses. I just think they are very cool and I would like to be one. I do not like them like **that**.
 
+***" I drew a picture of you with a smile on it! But then I kinda drooled on it. "***
+
 ![](https://s13.gifyu.com/images/bnBcb.gif) ![](https://s13.gifyu.com/images/bnBcM.gif) ![](https://s13.gifyu.com/images/bnBcL.gif)
 
 **About Me:**
