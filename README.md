@@ -1,27 +1,23 @@
-***" So put (put, put, put) put your hand in my back pocket. As if it were your own back pocket! "***
+**" it won't be long until everything works out nice in the end! "**
 
-Hello and welcome to my page! This is my first time making one of these, so bear with me. Haha.
+yoooyooyyooooo!!!! what is up goats!!!! its john wats up um yes!!! this is my github1!!!! PLZ DONT BE AFRAID TO INTERACTW TIH ME PLEASE EPLAPSLPEREASEEE I LOVE FRIENDS
 
-**Do Not Interact:**
-TCC, Darkshippers (Especially **ANY HOMESTUCK INCESTUOUS SHIP**. All of you who like that stuff are weird as fuck. **Do not interact with me.**), Anti-recovery, under 14 (I just prefer having friends 14 and up despite being 16, so YES. I **do** sound like a hypocrite, but I do not care.), over 19, SHEDtwt, Nsfw, Zoophiles, Endogenics + Willogenics. Uruhhrhg, I'll add more some other time, that's all I can think of right now. I'm sorry if I've accidentally interacted with you and you're on my DNI. I don't really read everypony's links.
+**do not interact!!!!!!!!**
+tcc, darkshippers / proshippers (especially **ANY HOMESTUCK INCESTUOUS SHIP**, all of you who like that stuff are weird af!!!! **do not interact with me!!!!!**), anti-recovery, under 14, over 19, SHEDtwt, nsfw, zoophiles, endos + willos!!
 
-Oh also, please don't be like, weird about how I acted in source. I am not like that about horses. I just think they are very cool and I would like to be one. I do not like them like **that**.
+![](https://64.media.tumblr.com/181dbf8723b9b29a2f224665193b2c48/dc5182f7dadcccc3-ad/s100x200/1a3093b6c63f72394fe241e399c6ebcb7f3d0c98.pnj) ![](https://64.media.tumblr.com/a29d1c377d3d31bbc20c0ef34e96c33c/dc5182f7dadcccc3-7f/s100x200/07481512c76feb2b86563398b9acf193f1ec3066.gifv) ![](https://64.media.tumblr.com/93cfa4dd954cc7154047dba336ca81dc/dc5182f7dadcccc3-42/s100x200/98a70c50adb98a7949c7bf50f22372d222295e0c.pnj)
 
-***" I drew a picture of you with a smile on it! But then I kinda drooled on it. "***
+**about me!!!**
+im 6teen yeras pld!!!!! i loooovee makingf reinds umm u mmm ummmmmmmmmmm i loooovovoeeelvovovloelvoeee talkimng about my interesst and i love schooland i love learning i esepecially love music theory and spanish and english and science and like eveyrthing!!!!!! ummmm i love singing too but umu u m uummm i get overstimulated a lolt anf that makes me irritated so if im bieng mean pleas ekno w its not perdsonal .... im mostly just too annoyed and overwhelem,d with all the noise or stuff onmys creen!!!! um u u mmm i try my best to make ervyerone feel included but if u dont or if im elaving u out OLEASEEE dm me and i ll fix dat RIGHT AWQY!!!!!
 
-![](https://s13.gifyu.com/images/bnBcb.gif) ![](https://s13.gifyu.com/images/bnBcM.gif) ![](https://s13.gifyu.com/images/bnBcL.gif)
+**PLEEEASEEEE interact!!!!**
+sourfcemates!!!!! uuuummmm i dont really know!!!!! anybody whso cool!!!!!!
 
-**About Me:**
-I am mentally disabled and it makes me struggle with a **lot** of things, though most noticeably, speaking to people. I struggle a **lot** with talking to people besides my partner or best friend. I may come off as stuck-up or awkward, so #Apologies in advance. I can't really notice social cues, so when speaking to me, you may need to be a bit straight-forward. I am a Sylph of Space and my e%tended zodiac sign is Lega! I really enjoy looking  into things like that as it tells me more about myself. I am 6teen years old.
+**ponytown:**
+om BAAAAASCICALLLLYYYY always offtab!!! just send me a whisper bro!!! ill reply!!!!! im always in da homestuck area or on my island sitting w my partner!!!! tje skin im wearing corresponds witht he mainn fronter!!!! please odnt copy any of my skins btwwwww!!!!!
 
-**Please interact:**
-Sourcemates, [My Little Pony fans](https://www.youtube.com/watch?v=hOgamnKX2-o), People who like roleplaying, If you like horses
+**skins u may see us as!!!!!**
 
-**PonyTown:**
-I am almost **always** offtab. If you wish to interact with me, please just whisper. I'm always in the Homestuck area, or when my partner has joined, I'll be on my island. Skin depends on fronter. **Please** do not copy any of my skins.
+![](https://s13.gifyu.com/images/bnedn.gif#50x50) ![](https://s13.gifyu.com/images/bnedd.gif#50x50) ![](https://s13.gifyu.com/images/bnedl.gif#50x50) ![](https://s13.gifyu.com/images/buxtA.gif#50x50) ![](https://s13.gifyu.com/images/bne6Q.gif#50x50) ![](https://s13.gifyu.com/images/bne67.gif#50x50) ![](https://s13.gifyu.com/images/bned7.gif#50x50) ![](https://s13.gifyu.com/images/buwA1.gif#50x50)
 
-**Skins you may see us as:**
-
-![](https://s13.gifyu.com/images/bnedn.gif#50x50) ![](https://s13.gifyu.com/images/bnedd.gif#50x50) ![](https://s13.gifyu.com/images/bnedl.gif#50x50) ![](https://s13.gifyu.com/images/buxtA.gif#50x50) ![](https://s13.gifyu.com/images/bne6Q.gif#50x50) ![](https://s13.gifyu.com/images/bne67.gif#50x50) ![](https://s13.gifyu.com/images/bned7.gif#50x50) ![](https://s13.gifyu.com/images/bne6u.gif#50x50)
-
-***" I am the slave.. and you are the master! Here is a stick. Now beat me. BEAT ME FASTER! "***
+**" it's a little bit of magic to end the world!!! (but i thought you knew me, truly!!!) "**
