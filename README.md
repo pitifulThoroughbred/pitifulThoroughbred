@@ -11,7 +11,7 @@ tcc, darkshippers / proshippers (especially **ANY HOMESTUCK INCESTUOUS SHIP**, a
 im 6teen yeras pld!!!!! i am an alter in a did system so i am not ALYYWYAYAS fronting nad i ahev bevyer bad memroiy issueus. .....  i loooovee makingf reinds umm u mmm ummmmmmmmmmm i loooovovoeeelvovovloelvoeee talkimng about my interesst and i love schooland i love learning i esepecially love music theory and spanish and english and science and like eveyrthing!!!!!! ummmm i love singing too but umu u m uummm i get overstimulated a lolt anf that makes me irritated so if im bieng mean pleas ekno w its not perdsonal .... im mostly just too annoyed and overwhelem,d with all the noise or stuff onmys creen!!!! um u u mmm i try my best to make ervyerone feel included but if u dont or if im elaving u out OLEASEEE dm me and i ll fix dat RIGHT AWQY!!!!! please **pleaslpeleaseee** let me know if im getitng annoying i dontr elaly yknow when please let me know ... im also ppuuuureetttyyy sensitivie #sorry . .. i knwo. . LAMMMMEEE whatEVS but i cnant relal take joeks i talke stuf super literlaly and dont elalt know when peolr are jokign .. also my extended zodiac is lesci!!! even tho i feel very attached to breath as its my aspect in source, i fele like i am also life ... IDUNNO i feel like i could be breath or life
 
 **freqiuent fronters!!!**
-meeeee, dirk, horuss, kankri, jane, eridan, andr roxy!!!! fromtstuck haha ge t it its a p un .... homestuck.. . frontstuckk.....
+meeeee, dirk, horuss, kankri, jane, eridan, brobot, andr roxy!!!! fromtstuck haha ge t it its a p un .... homestuck.. . frontstuckk.....
 
 **PLEEEASEEEE interact!!!!**
 sourfcemates!!!!! uuuummmm i dont really know!!!!! anybody whso cool!!!!!!
